@@ -1,0 +1,7 @@
+- 👋 Hi, I’m lynx!
+- 👀 I’m interested in fnf
+- 🌱 I’m currently learning die
+- 💞️ I’m looking to collaborate on nothing atm
+- 📫 How to reach me no way <3
+- 😄 Pronouns: any!
+- ⚡ Fun fact: i love stickyBM and like fnf :3
